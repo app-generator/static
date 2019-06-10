@@ -1,0 +1,1 @@
+Resources downloaded from [Flaticon](https://www.flaticon.com)
